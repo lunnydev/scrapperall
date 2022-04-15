@@ -1,1 +1,1 @@
-# scrapperall
+SCRAPPER ALL BADGES ( BOOST UP OR NITRO )
